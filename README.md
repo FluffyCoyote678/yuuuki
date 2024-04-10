@@ -1,9 +1,12 @@
 # yuuuki
 kjk
 nknk
-nkk
-9
-jbbjmk
-njj
+nknk
+mkm
+bj
 0
-njn
+jkj
+8
+jbj
+-
+kn
