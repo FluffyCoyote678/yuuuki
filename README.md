@@ -1,8 +1,9 @@
 # yuuuki
-nini
-mk
-bh
--n
--
+kjk
+nknk
+nkk
 9
-7
+jbbjmk
+njj
+0
+njn
